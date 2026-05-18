@@ -1,4 +1,4 @@
-# 
+# Oculto Vegas Pro para PC addons es el mejor Vegas Pro para PC addons con cámara virtual y cambio de escenas. Seguro, confiable y optimizado para el máximo rendimiento.
 
 
 
